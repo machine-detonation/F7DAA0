@@ -1,9 +1,9 @@
-- Artist + Animator , quiet sometimes
+- Artist + Animator , quiet sometimes | if I'm yapping to you about my OCs or a passion project please listen I promise it'll be worth ur time
 
 Random fact: To die of radiation from bananas , you would need to eat 50 million bananas . (idk if that is true or not but you probably won ' t fact check it)
 
-FOR THE PONYTOWN PEOPLE: I don't mind if you come up and cuddle w/ me !  I am usually at the Roblox , Bluelock , CRK or OSC areas .  also part stealers dni i HATE you (/hj but you get the point)
-- Please refer to my new strawpage ( getting remade, please wait. ) for more information .
+FOR THE PONYTOWN PEOPLE: I don't mind if you come up and cuddle w/ me !
+
 - also I'm really indecisive so if I keep rmking my straw please don't worry about it 🥀🙏
 
 <!---
