@@ -4,7 +4,7 @@ Random fact: To die of radiation from bananas , you would need to eat 50 million
 
 FOR THE PONYTOWN PEOPLE: I don't mind if you come up and cuddle w/ me !
 
-- also I'm really indecisive so if I keep rmking my straw.page or pfp please don't worry about it 🥀🙏
+- also I'm really indecisive so if I keep rmking my straw.page or changing my pfp please don't worry about it 🥀🙏
 
 <!---
 Anova-Anet/Anova-Anet is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
