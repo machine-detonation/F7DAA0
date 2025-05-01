@@ -6,7 +6,7 @@ FOR THE PONYTOWN PEOPLE: I don't mind if you come up and cuddle w/ me !
 
 - also I'm really indecisive so if I keep rmking my straw.page please don't worry about it 🥀🙏
 
-- I change my pfp daily :P
+- I change my pfp often :P
 
 <!---
 Anova-Anet/Anova-Anet is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
