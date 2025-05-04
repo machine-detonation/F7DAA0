@@ -2,7 +2,7 @@
 
 Random fact: To die of radiation from bananas , you would need to eat 50 million bananas . (idk if that is true or not but you probably won ' t fact check it)
 
-- also I'm really indecisive so if I keep rmking my straw.page please don't worry about it 🥀🙏
+- straw.page(s) are being remade at the moment ,  please be patient !
 
 - I change my pfp often :P
 
