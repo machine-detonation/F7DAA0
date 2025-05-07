@@ -7,7 +7,7 @@ Random fact: To die of radiation from bananas , you would need to eat 50 million
 - I change my pfp often :P
 
 
-- why is everyone I see on ponytown (safe server, english) 18 or older I could've sworn the Roblox area was -17 ???   did the minors disappear ???  like compared to everyone else there I'm like a fetus
+- why is everyone I see on ponytown (safe server, global) 18 or older I could've sworn the Roblox area was -17 ???   did the minors disappear ???  like compared to everyone else there I'm like a fetus
 
 <!---
 Anova-Anet/Anova-Anet is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
