@@ -1,4 +1,4 @@
-- Artist + Animator
+- Artist + Animator ,, will eventually be a game dev
 
 - Rocket (PHIGHTING!) and STAT (REGRETEVATOR) are my kins,, however rocket is a bigger kin for me (if that wasn't obvious)
 
