@@ -1,10 +1,8 @@
-- Artist + Animator ,, will eventually be a game dev
+- Artist + Animator + eventual(?) game dev
 
-- Rocket (PHIGHTING!) and STAT (REGRETEVATOR) are my kins,, however rocket is a bigger kin for me (if that wasn't obvious)
+- i have a long list of DNIs and I'm not listing them here rn but for the most part it is just the basic/general criteria
 
-- If you have ANY knowledge about floriography, astronomy, regretevator or phighting please please puh-LEASE tell me about them
-
-Random fact: To die of radiation from bananas , you would need to eat 50 million bananas . (idk if that is true or not but you probably won ' t fact check it)
+- If I have you blocked on GitHub or Hidden on PonyTown or anything like that, I either did it on accident or you have something like "-15 DNI" on one of your socials
 
 <!---
 Anova-Anet/Anova-Anet is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
