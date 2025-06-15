@@ -1,8 +1,6 @@
 ✧ :: Artist + Animator + eventual(?) game dev
 
-♢ :: i have a long list of DNIs and I'm not listing them here rn but for the most part it is just the basic/general criteria
-
-✧ :: If I have you blocked on GitHub, I either did it on accident or you have something like "-15 DNI" on one of your socials
+✧ :: If I have you blocked on GitHub, it's likely because I got uncomfortable around you. It's nothing personal!
 
 ♢ :: I get nervous/uncomfortable around people easily.
 
