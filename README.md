@@ -1,9 +1,5 @@
-✧ :: Artist + Animator + eventual(?) game dev
+I'll come as rude/mean or brutally honest sometimes.
 
-✧ :: I have a habit of "trash-talking" things I don't like (I.E, ships, characters, people, etc).
+I make "freaky" jokes sometimes (ESPECIALLY if we are super close/I know you IRL) but I do NOT mean anything by them, truly! Let me know if I make you uncomfortable though.
 
-:: sometimes I'll joke about my problems as a way to cope.
-<!---
-Anova-Anet/Anova-Anet is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+I am a fictionkin/synpath of [Rocket](https://phighting.wiki/Rocket/) and [STAT](https://regretevator.fandom.com/wiki/STAT/). (if ya don't know what that means click [here](https://fkin.carrd.co/)
