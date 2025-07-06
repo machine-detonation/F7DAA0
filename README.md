@@ -4,7 +4,7 @@ I make "freaky" jokes sometimes (ESPECIALLY if we are close/I know you IRL) but 
 
 I am a fictionkin/synpath of [Rocket](https://phighting.wiki/Rocket). (if ya don't know what that means click [here](https://fkin.carrd.co/))
 
-I am under 16 years old currently. (I'll only give out my actual age if we are SUPER close friends because of, y'know, boundaries and privacy)
+I am under 16 years old currently. (I'll only give out my actual age if we are SUPER close friends because of, y'know, privacy)
 
 I usually only follow friends of my friends/my friends in general and people that I think are cool/wanna be friends with
 
