@@ -24,4 +24,4 @@ I make a ton of (un)funny puns/jokes, if you don't laugh just act like you did /
 
 ### other
 
-["DNI"s + BOUNDARIES](https://github.com/machine-detonation/FFFFFF)  [INTERESTS](https://github.com/machine-detonation/EDD3A0)  [SOCIALS](https://github.com/machine-detonation/7CCA92)
+["DNI"s + BOUNDARIES](https://github.com/machine-detonation/FFFFFF)    [INTERESTS](https://github.com/machine-detonation/EDD3A0)    [SOCIALS](https://github.com/machine-detonation/7CCA92)    [PONY.TOWN INFORMATION (possibly outdated)](https://github.com/machine-detonation/000000)
