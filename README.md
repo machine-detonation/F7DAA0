@@ -13,3 +13,5 @@ I read the GitHub profile of everyone who follows me because I'm super nosy
 > ^ I'm also forgetful as hell so if I forget something like ur name please don't pelt me with rocks I didn't mean to
 
 I make a lot of eyestrain characters on pony.town for fun
+
+I make a ton of (un)funny puns/jokes, if you don't laugh just act like you did /silly
