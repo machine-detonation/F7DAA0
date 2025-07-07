@@ -4,7 +4,7 @@
 
 # INTRODUCTION!!
 
-- There's a handful of names I go by but R0cket, Crown and Redzz/Red are the ones I use the most
+- There's a handful of names I go by but R0cket, Crown, Bee and Redzz/Red are the ones I use the most
 
 - certified jammer,, I really like Animal Jam :P
 
@@ -15,6 +15,8 @@
 ## BEFORE YOU INTERACT
 
 I'll come as rude/mean or brutally honest sometimes.
+
+Like actual bees, I'll sting you if you pmo (aka I block freely)
 
 I make "freaky" jokes sometimes (ESPECIALLY if we are close/I know you IRL) but I do NOT mean anything by them, truly! Let me know if I make you uncomfortable though.
 
@@ -35,3 +37,5 @@ I make a ton of (un)funny puns/jokes, if you don't laugh just act like you did /
 ### other
 
 ["DNI"s + BOUNDARIES](https://github.com/machine-detonation/FFFFFF)    [INTERESTS](https://github.com/machine-detonation/EDD3A0)    [SOCIALS](https://github.com/machine-detonation/7CCA92)    [PONY.TOWN INFORMATION (possibly outdated)](https://github.com/machine-detonation/000000)
+
+if ur gonna judge me over something let it be the fact that I still laugh at 2020 humor/cringey stuff sometimes
