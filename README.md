@@ -6,7 +6,9 @@
 
 - There's a handful of names I go by but R0cket, Crown, Bee and Redzz/Red are the ones I use the most
 
-- certified jammer,, I really like Animal Jam :P
+- certified jammer
+
+- I like bees a lot and I'm currently learning about em because they're so awesome and uh uhm yeah
 
 - Digital and Traditional artist (I'd show some art but my camera SUCKS sorry chat)
 
@@ -19,6 +21,8 @@
   > does being a rocket mirrorshipper while being a rocket fictionkin technically make that selfcest????? (you can ignore this btw it isn't important)
 
 ## BEFORE YOU INTERACT
+
+sometimes I'll randomly go quiet during a conversation. this doesn't mean I'm not interested
 
 I'll come as rude/mean or brutally honest sometimes.
 
