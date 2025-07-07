@@ -12,6 +12,8 @@
 
 - game dev? maybe?? idk I can't code that well BUT I do have a handful of games I wanna make
 
+- if I'm already sitting w/ someone interacting with me might be a bit awkward but other than that please talk to me 🙏🙏🙏
+
 ## BEFORE YOU INTERACT
 
 I'll come as rude/mean or brutally honest sometimes.
