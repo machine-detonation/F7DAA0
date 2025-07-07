@@ -40,6 +40,8 @@ I make a lot of eyestrain characters on pony.town for fun
 
 I make a ton of (un)funny puns/jokes, if you don't laugh just act like you did /silly
 
+I quite literally have like no socials so if you want to send me something then figure out a way to get it to me
+
 ### other
 
 ["DNI"s + BOUNDARIES](https://github.com/machine-detonation/FFFFFF)    [INTERESTS](https://github.com/machine-detonation/EDD3A0)    [SOCIALS](https://github.com/machine-detonation/7CCA92)    [PONY.TOWN INFORMATION (possibly outdated)](https://github.com/machine-detonation/000000)
