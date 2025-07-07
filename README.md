@@ -1,3 +1,6 @@
+![Untitled672_20250706220218](https://github.com/user-attachments/assets/8458442a-0195-4a86-832f-cbd7f7c021b7)
+
+
 I'll come as rude/mean or brutally honest sometimes.
 
 I make "freaky" jokes sometimes (ESPECIALLY if we are close/I know you IRL) but I do NOT mean anything by them, truly! Let me know if I make you uncomfortable though.
