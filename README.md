@@ -14,6 +14,10 @@
 
 - if I'm already sitting w/ someone interacting with me might be a bit awkward but other than that please talk to me 🙏🙏🙏
 
+- Polyshipper, multishipper, yumeshipper and mirrorshipper (collect my ships type beat /silly)
+
+  > does being a rocket mirrorshipper while being a rocket fictionkin technically make that selfcest????? (you can ignore this btw it isn't important)
+
 ## BEFORE YOU INTERACT
 
 I'll come as rude/mean or brutally honest sometimes.
@@ -40,4 +44,4 @@ I make a ton of (un)funny puns/jokes, if you don't laugh just act like you did /
 
 ["DNI"s + BOUNDARIES](https://github.com/machine-detonation/FFFFFF)    [INTERESTS](https://github.com/machine-detonation/EDD3A0)    [SOCIALS](https://github.com/machine-detonation/7CCA92)    [PONY.TOWN INFORMATION (possibly outdated)](https://github.com/machine-detonation/000000)
 
-if ur gonna judge me over something let it be the fact that I still laugh at 2020 humor/cringey stuff sometimes
+if ur gonna judge me over something and pelt me with rocks let it be the fact that I still laugh at 2020 humor/cringey stuff sometimes
