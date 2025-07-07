@@ -1,6 +1,10 @@
 ![Untitled672_20250706220218](https://github.com/user-attachments/assets/8458442a-0195-4a86-832f-cbd7f7c021b7)
 
-this graphic is not mine, it's made by [@Morgio](https://github.com/Morgio)
+^ this graphic is not mine, it's made by [@Morgio](https://github.com/Morgio)
+
+# INTRODUCTION!!
+
+- There's a handful of names I go by but R0cket, Crown and Redzz/Red are the ones I use the most
 
 ## BEFORE YOU INTERACT
 
