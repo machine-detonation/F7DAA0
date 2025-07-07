@@ -46,4 +46,4 @@ I quite literally have like no socials so if you want to send me something then 
 
 ["DNI"s + BOUNDARIES](https://github.com/machine-detonation/FFFFFF)    [INTERESTS](https://github.com/machine-detonation/EDD3A0)    [SOCIALS](https://github.com/machine-detonation/7CCA92)    [PONY.TOWN INFORMATION (possibly outdated)](https://github.com/machine-detonation/000000)
 
-if ur gonna judge me over something and pelt me with rocks let it be the fact that I still laugh at 2020 humor/cringey stuff sometimes
+if ur gonna judge me over something and pelt me with rocks let it be over the fact that I still laugh at 2020 humor/cringey stuff sometimes
