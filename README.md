@@ -16,7 +16,7 @@
 
 - if I'm already sitting w/ someone interacting with me might be a bit awkward but other than that please talk to me 🙏🙏🙏
 
-- Polyshipper, multishipper, yumeshipper and mirrorshipper (collect my ships type beat /silly)
+- Polyshipper, multishipper and mirrorshipper (collect my ships type beat /silly)
 
   > does being a rocket mirrorshipper while being a rocket fictionkin technically make that selfcest????? (you can ignore this btw it isn't important)
 
