@@ -18,7 +18,7 @@
 
 ## BEFORE YOU INTERACT
 
-I use typing quirks and talk in fancy fonts sometimes 
+I use typing quirks and talk in fancy fonts
 
 I am under 16 years old.
 
@@ -35,6 +35,8 @@ I am a fictionkin/synpath of [Rocket](https://phighting.wiki/Rocket). (if ya don
 I make a ton of (un)funny puns/jokes on purpose
 
 I quite literally have like no socials so if you want to send me something then figure out a way to get it to me
+
+I do get upset every easily so just watch what you say around me okay thanks
 
 ### other
 
