@@ -14,35 +14,25 @@
 
 - game dev? maybe?? idk I can't code that well BUT I do have a handful of games I wanna make
 
-- if I'm already sitting w/ someone interacting with me might be a bit awkward but other than that please talk to me 🙏🙏🙏
-
 - Polyshipper, multishipper and mirrorshipper (collect my ships type beat /silly)
 
-  > does being a rocket mirrorshipper while being a rocket fictionkin technically make that selfcest????? (you can ignore this btw it isn't important)
-
 ## BEFORE YOU INTERACT
+
+I use typing quirks and talk in fancy fonts sometimes 
+
+I am under 16 years old.
 
 sometimes I'll randomly go quiet during a conversation. this doesn't mean I'm not interested
 
 I'll come as rude/mean or brutally honest sometimes.
 
-Like actual bees, I'll sting you if you pmo (aka I block freely)
+I block freely
 
 I make "freaky" jokes sometimes (ESPECIALLY if we are close/I know you IRL) but I do NOT mean anything by them, truly! Let me know if I make you uncomfortable though.
 
 I am a fictionkin/synpath of [Rocket](https://phighting.wiki/Rocket). (if ya don't know what that means click [here](https://fkin.carrd.co/))
 
-I am under 16 years old currently. (I'll only give out my actual age if we are SUPER close friends because of, y'know, privacy)
-
-I usually only follow friends of my friends/my friends in general and people that I think are cool/wanna be friends with
-
-I read the GitHub profile of everyone who follows me because I'm super nosy
-
-> ^ I'm also super duper ultra MEGA forgetful so if I forget something like ur name please don't burn me at the stake I didn't mean to
-
-I make a lot of eyestrain characters on pony.town for fun
-
-I make a ton of (un)funny puns/jokes, if you don't laugh just act like you did /silly
+I make a ton of (un)funny puns/jokes on purpose
 
 I quite literally have like no socials so if you want to send me something then figure out a way to get it to me
 
