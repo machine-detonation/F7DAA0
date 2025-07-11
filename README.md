@@ -34,9 +34,7 @@ I am a fictionkin/synpath of [Rocket](https://phighting.wiki/Rocket). (if ya don
 
 I make a ton of (un)funny puns/jokes on purpose
 
-I quite literally have like no socials so if you want to send me something then figure out a way to get it to me
-
-I do get upset every easily so just watch what you say around me okay thanks
+I do get upset quite easily so just watch what you say around me
 
 ### other
 
