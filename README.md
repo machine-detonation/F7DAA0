@@ -66,3 +66,11 @@ anyways-
 > ^ saying ts to prevent a future argument I just don't want to get jumped and burned at the stake
 
 lmk if you don't like it when I use these when I'm talking to u okay thx
+
+
+
+× mean, probably a bit of an asshole too idk
+
+## other / extra
+
+the name Appl(e) Pie is a reference to my PHIGHT!sona (phighting! persona/self insert I think)
