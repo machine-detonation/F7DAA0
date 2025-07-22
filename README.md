@@ -75,4 +75,4 @@ lmk if you don't like it when I use these when I'm talking to u okay thx
 
 - the name Appl(e) Pie is a reference to my PHIGHT!sona (phighting! persona/self insert I think) with the same name
 
-- 
+- 𝓫𝓲𝓸𝓰𝓻𝓪𝓯𝓽 𝓶𝓪𝓲𝓷𝓼 𝓓𝓝𝓘... /j
