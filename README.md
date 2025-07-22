@@ -21,6 +21,10 @@
 
 • I block freely so if u see me w/ a "dni" list somwhre it jst means that the ppl on that list get blocked.
 
+
+
+• I kinda have no sense of humor; I'll laugh at pretty much anythng as long as u don't take it *TOO* far.
+
 ## BEFORE YOU INTERACT / FOLLOW
 
 again.. I'm a young fella (under 16yrs old), adults in general (no matter the age!) need to limit interaction w/ me unless I alr know u
@@ -29,3 +33,6 @@ again.. I'm a young fella (under 16yrs old), adults in general (no matter the ag
 
 I'm a Scorpio (Zodiac), apparently that has something to do with my personality blah blah wtv idgaf if I was born during litrly ANY otha month I'd still b like ths so
 
+
+
+rarely I'll say slurs but all of em are ones I can reclaim so
