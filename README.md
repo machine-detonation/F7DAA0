@@ -27,21 +27,21 @@
 
 ## BEFORE YOU INTERACT / FOLLOW
 
-again.. I'm a young fella (under 16yrs old), adults in general (no matter the age!) need to limit interaction w/ me unless I alr know u
+× again.. I'm a young fella (under 16yrs old), adults in general (no matter the age!) need to limit interaction w/ me unless I alr know u
 
 
 
-I'm a Scorpio (Zodiac), apparently that has something to do with my personality blah blah wtv idgaf if I was born during litrly ANY otha month I'd still b like ths so
+× I'm a Scorpio (Zodiac), apparently that has something to do with my personality blah blah wtv idgaf if I was born during litrly ANY otha month I'd still b like ths so
 
 
 
-rarely I'll say slurs but all of em are ones I can reclaim so
+× rarely I'll say slurs but all of em are ones I can reclaim so
 
 > I.E.. n word, trans slur and the r slur
 
 
 
-I TYPE SLOW AS HELL I'M SORRY WAHHWAHWAGWAGHMDMHDMYODYSYKSYKKSYSYK
+× I TYPE SLOW AS HELL I'M SORRY WAHHWAHWAGWAGHMDMHDMYODYSYKSYKKSYSYK
 
 why tf am I apologizing for being a slow typer
 
@@ -49,7 +49,7 @@ anyways-
 
 
 
-frequent typing quirk user
+× frequent typing quirk user
 
 > thiz iz an example
 >
