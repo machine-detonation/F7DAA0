@@ -19,7 +19,7 @@
 
 
 
-• I block freely so if u see me w/ a "dni" list somwhre it jst means that the ppl on that list get blocked. simple, rite?
+• I block freely so if u see me w/ a "dni" list somwhre it jst means that the ppl on that list get blocked.
 
 ## BEFORE YOU INTERACT / FOLLOW
 
