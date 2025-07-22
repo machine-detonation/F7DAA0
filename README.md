@@ -71,8 +71,14 @@ lmk if you don't like it when I use these when I'm talking to u okay thx
 
 × mean, probably a bit of an asshole too idk
 
+
+
+× 
+
 ## other / extra
 
 - the name Appl(e) Pie is a reference to my PHIGHT!sona (phighting! persona/self insert I think) with the same name
+
+  > they have a sister named Pumpkin Pi which is based of one of my sisters irl (DO NOT SHIP APPL PIE AND PUMPKIN PI I'M GOING TO HUNT YOU DOWN)
 
 - 𝓫𝓲𝓸𝓰𝓻𝓪𝓯𝓽 𝓶𝓪𝓲𝓷𝓼 𝓓𝓝𝓘... /j
