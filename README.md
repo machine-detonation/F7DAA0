@@ -15,4 +15,17 @@
 
 
 
-• Minor, undr 16 to be more specific.., 17+ iwec and 20+ get blocked and hiddn on sight unless I know u
+• Minor, undr 16 to be more specific.., 17+ iwvec and 20+ get blocked and hiddn on sight unless I know u
+
+
+
+• I block freely so if u see me w/ a "dni" list somwhre it jst means that the ppl on that list get blocked. simple, rite?
+
+## BEFORE YOU INTERACT / FOLLOW
+
+again.. I'm a young fella (under 16yrs old), adults in general (no matter the age!) need to limit interaction w/ me unless I alr know u
+
+
+
+I'm a Scorpio (Zodiac), apparently that has something to do with my personality blah blah wtv idgaf if I was born during litrly ANY otha month I'd still b like ths so
+
