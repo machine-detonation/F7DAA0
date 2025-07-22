@@ -1,7 +1,5 @@
-> this is under heavy construction uhmmyhuhhuhu THIS PROBABLY LOOKS REALLY UGLY JUST TRUST THE PROCESS
+> this is under heavy construction uhmmyhuhhuhu THIS PROBABLY LOOKS RLLY UGLY JST TRUST THE PROCESS
 
-
-let's start off with the basics..
 
 # INTRODUCTION
 
@@ -9,8 +7,12 @@ let's start off with the basics..
 
 
 
-• I do considr myself Anti-Harrasment, howevr I am NOT a darkshipper. (darkships dni, please.)
+• I do considr myself Anti-Harrasment, howevr I am NOT a darkshipper. (darkships dni, plz.)
 
 
 
-• I am [Pomogender](https://gender.fandom.com/wiki/Pomogender) and [Omnisexual](https://lgbtqia.fandom.com/wiki/Omnisexual).
+• I am [Pomogender](https://gender.fandom.com/wiki/Pomogender) n' [Omnisexual](https://lgbtqia.fandom.com/wiki/Omnisexual).
+
+
+
+• Minor, undr 16 to be more specific.., 17+ iwec and 20+ get blocked and hiddn on sight unless I know u
