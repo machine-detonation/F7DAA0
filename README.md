@@ -7,7 +7,7 @@
 
 
 
-• I do considr myself Anti-Harrasment, howevr I am NOT a darkshipper. (darkships dni, plz.)
+• I do considr myself Anti-Harrasment, howevr I am NOT a darkshipper. (darkships dni pls u guys make me supr dupr uncomfortable)
 
 
 
