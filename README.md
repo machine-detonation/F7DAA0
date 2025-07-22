@@ -38,3 +38,23 @@ I'm a Scorpio (Zodiac), apparently that has something to do with my personality 
 rarely I'll say slurs but all of em are ones I can reclaim so
 
 > I.E.. n word, trans slur and the r slur
+
+
+
+I TYPE SLOW AS HELL I'M SORRY WAHHWAHWAGWAGHMDMHDMYODYSYKSYKKSYSYK
+
+why tf am I apologizing for being a slow typer
+
+anyways-
+
+
+
+frequent typing quirk user
+
+> thiz iz an example
+>
+> th1s 1s 4n 3x4mpl3
+>
+> I cn't rembr if my wife liks her eggs fried or scrmbld
+>
+> ƚԋιʂ ιʂ αɳ ҽxαɱρʅҽ (just a fancy font but wtvs ig it still counts)
