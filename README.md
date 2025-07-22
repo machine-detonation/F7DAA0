@@ -27,7 +27,7 @@
 
 
 
-×l- bit of a 𝓹𝓱𝓻𝓮𝓪𝓴 (phreak), so I'll make weird/freaky jokes but ion mean them
+• bit of a 𝓹𝓱𝓻𝓮𝓪𝓴 (phreak), so I'll make weird/freaky jokes but ion mean them
 
 ## extra
 
