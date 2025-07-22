@@ -36,3 +36,5 @@ I'm a Scorpio (Zodiac), apparently that has something to do with my personality 
 
 
 rarely I'll say slurs but all of em are ones I can reclaim so
+
+> I.E.. n word, trans slur and the r slur
