@@ -61,8 +61,8 @@ frequent typing quirk user
 >
 > this is an exampl-
 
-lmk if you don't like it when I use these okay thx
-
 > ALSO IF I'M NOT DIRECTLY TALKING TO YOU OR ANY1 BESIDES THE PERSON I'M ACTUALLY TALKING W/, DON'T BUD INTO THE CONVERSATION BECAUSE PEOPLE W/ SCREENREADERS CAN'T READ WHAT I'M SAYING. IF IT'S NOT MEANT FOR THEM THEN THEY SHOULDN'T READ IT TO BEGIN WITH, SCREEN READER OR NOT
 >
 > ^ saying ts to prevent a future argument I just don't want to get jumped and burned at the stake
+
+lmk if you don't like it when I use these when I'm talking to u okay thx
