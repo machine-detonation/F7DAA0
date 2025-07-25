@@ -6,6 +6,9 @@
 
 [rocket](https://phighting.wiki/Rocket) [synpath/fictionkin](https://fkin.carrd.co), im not a sys  --  ![tumblr_edb1aa4ae23592c196c38cf631d44402_a7b4c739_75](https://github.com/user-attachments/assets/e3bbb4df-b94d-4121-9413-e9fca0c8fd9e)
 
+![atgvea](https://github.com/user-attachments/assets/493fd7be-0d71-4295-bc37-3234379f93c9)  --  
+
+
 go  follow  [@Morgio](https://github.com/Morgio)  she's  cool  --  ![98-AD43-BE-580-A-4129-9-B70-324-F8058092-D](https://github.com/user-attachments/assets/49e45bf2-c21e-40fe-bda7-a8cdc5d2baef)
 
 
