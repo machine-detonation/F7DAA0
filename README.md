@@ -1,35 +1,5 @@
-> this is under heavy construction uhmmyhuhhuhu THIS PROBABLY LOOKS RLLY UGLY JST TRUST THE PROCESS
-
-
-• I go by Appl(e) Pie, but also Rocket, Crown, Redzz, Bluu + [other names](https://pronouns.cc/@RRR0cketz)
+> work in progress
 
 
 
-• I do considr myself Anti-Harrasment, howevr I am NOT a darkshipper. (darkships dni pls u guys make me supr dupr uncomfortable)
-
-
-
-• I am [Pomogender](https://gender.fandom.com/wiki/Pomogender) n' [Omnisexual](https://lgbtqia.fandom.com/wiki/Omnisexual).
-
-
-
-• Minor, undr 16 to be more specific.., ppl 17≥ iwvec and ppl 20≥ get blocked and hiddn on sight unless I know u
-
-
-
-• I block freely so if u see me w/ a "dni" list somwhre it jst means that the ppl on that list get blocked.
-
-
-
-• I kinda have no sense of humor; I'll laugh at pretty much anythng as long as u don't take it *TOO* far.
-
-
-• bit of a 𝓹𝓱𝓻𝓮𝓪𝓴 (phreak), so I'll make weird/freaky jokes but ion mean the
-
-
-
-- the name Appl(e) Pie is a reference to my PHIGHT!sona (phighting! persona/self insert I think) with the same name
-
-
-
-- 𝓫𝓲𝓸𝓰𝓻𝓪𝓯𝓽 𝓶𝓪𝓲𝓷𝓼 𝓓𝓝𝓘... /j
+<img width="35" height="24" alt="21961dc9" src="https://github.com/user-attachments/assets/a0ca6751-ddc7-4a33-966a-1071ccb3f07a" />  this shizz kinda wack I'll finish this later
