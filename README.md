@@ -7,7 +7,7 @@
 ![0fo3rc](https://github.com/user-attachments/assets/30bd9d0a-17e4-4bcf-9996-85e71b64b729)
   --  [rocket](https://phighting.wiki/Rocket) [synpath/fictionkin](https://fkin.carrd.co), im not a sys (system)
 
-![atgvea](https://github.com/user-attachments/assets/493fd7be-0d71-4295-bc37-3234379f93c9)  --  I mostly talk about phighting and sometimes I won't shut up about it so lmk if you don't like that
+![atgvea](https://github.com/user-attachments/assets/493fd7be-0d71-4295-bc37-3234379f93c9)  --  I kinda laugh at pretty much anything just don't take it too far
 
 ![tumblr_49b5504b48c2f9f6cb4b6420969846e1_65558f6a_75](https://github.com/user-attachments/assets/82062bbf-a9d1-4673-a4a4-1d4a3679d0ef)
   --  go  follow  [@Morgio](https://github.com/Morgio)  she's  cool
