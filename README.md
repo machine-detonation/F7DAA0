@@ -2,10 +2,12 @@
 
 
 
+there's a gazillion names I go by but u can call me appl pie, erza, 
+
 <img width="35" height="24" alt="21961dc9" src="https://github.com/user-attachments/assets/a0ca6751-ddc7-4a33-966a-1071ccb3f07a" />  --  im a young artist/animator • i like video games, astronomy, botany + [otha stuf](https://github.com/machine-detonation/EDD3A0)
 
 ![0fo3rc](https://github.com/user-attachments/assets/30bd9d0a-17e4-4bcf-9996-85e71b64b729)
-  --  [rocket](https://phighting.wiki/Rocket) [synpath/fictionkin](https://fkin.carrd.co), im not a sys (system)
+  --  [rocket](https://phighting.wiki/Rocket) + [slingshot](https://phighting.wiki/Slingshot) [synpath/fictionkin](https://fkin.carrd.co), im not a sys (system)
 
 ![atgvea](https://github.com/user-attachments/assets/493fd7be-0d71-4295-bc37-3234379f93c9)  --  I kinda laugh at pretty much anything just don't take it too far
 
