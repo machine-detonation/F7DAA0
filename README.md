@@ -31,18 +31,20 @@ there's a gazillion names I go by but u can call me appl pie, erza, redzz, rocke
 
 
 
+## BYI/F (BEFORE YOU INTERACT/FOLLOW)
 
+:: I have a really trashy memory so I'll probably ask for your name(s)/pronouns often ssorryyyyy
 
+: related to the last thing, if I'm friends with you and ur a system I'll probably frequently ask who's fronting because yk, bad memory, lmk if you don't like that
 
+:: I use typing quirks and ish like that so I'll list some of them here
 
+> thiz iz an example
+>
+> th1s 1s 4n 3x4mpl3
+>
+> elpmaxe na si siht
 
+:: again, under 16 years old
 
-
-
-
-
-
-
-
-
-
+:: some of the jokes I make are weird
