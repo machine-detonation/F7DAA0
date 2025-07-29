@@ -50,3 +50,5 @@ there's a gazillion names I go by but u can call me appl pie, erza, redzz, rocke
 :: again, under 16 years old
 
 :: some of the jokes I make are weird
+
+:: **SUSPECTED** ADHD + Misophonia
