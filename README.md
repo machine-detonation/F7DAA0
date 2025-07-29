@@ -51,4 +51,4 @@ there's a gazillion names I go by but u can call me appl pie, erza, redzz, rocke
 
 :: some of the jokes I make are weird
 
-:: **SUSPECTED** ADHD + Misophonia
+:: **SUSPECTED** AUDHD + Misophonia
