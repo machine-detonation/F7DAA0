@@ -12,7 +12,7 @@ either give me a nickname or call me appl pie, redzz or the names of my kins (se
 ![atgvea](https://github.com/user-attachments/assets/493fd7be-0d71-4295-bc37-3234379f93c9)  --  I kinda laugh at pretty much anything just don't take it too far
 
 ![tumblr_49b5504b48c2f9f6cb4b6420969846e1_65558f6a_75](https://github.com/user-attachments/assets/82062bbf-a9d1-4673-a4a4-1d4a3679d0ef)
-  --  go  follow  [@Morgio](https://github.com/Morgio)  she's  cool
+  --  i'm a bit a stupid idiot and I'm not educated on every single internet term there is so jokes might fly over my head
 
   ![3073c276](https://github.com/user-attachments/assets/c70f2e09-0fc3-45a6-9260-208f4e6f4baf)  &  ![75b71529](https://github.com/user-attachments/assets/50352506-76b2-4cf9-b964-0db2fb0cc685)
 
