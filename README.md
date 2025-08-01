@@ -47,7 +47,7 @@ either give me a nickname or call me appl pie, redzz or the names of my kins (se
 >
 > thhisss is aannn eexammpleee,,
 
-:: again, under 16 years old
+:: under 16 years old
 
 :: some of the jokes I make are weird
 
