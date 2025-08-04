@@ -13,6 +13,10 @@ jst call me erza, slingshot or rocket | any pronouns including neos idm
 ![tumblr_49b5504b48c2f9f6cb4b6420969846e1_65558f6a_75](https://github.com/user-attachments/assets/82062bbf-a9d1-4673-a4a4-1d4a3679d0ef)
   --  im stupid and I misunderstand stuff and I don't understand most of the new internet/lgbtia+ terms or slang or wtv tf else so explanations are appreciated
 
+![tumblr_edb1aa4ae23592c196c38cf631d44402_a7b4c739_75](https://github.com/user-attachments/assets/fa74dcf8-2558-473d-90e5-c2854d3a3014) -- I really don't like sitting in complete silence when I'm with someone,, it's really awkward! + I'm a massive chatterbox uhm
+
+
+
   ![3073c276](https://github.com/user-attachments/assets/c70f2e09-0fc3-45a6-9260-208f4e6f4baf)
 
 
