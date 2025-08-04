@@ -1,4 +1,4 @@
-> work in progress
+> constantly being worked on I'm never satisfied </3 
 
 
 jst call me erza, slingshot or rocket | any pronouns including neos idm
