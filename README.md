@@ -1,8 +1,7 @@
 > work in progress
 
 
-
-either give me a nickname or call me appl pie, redzz or the names of my kins (seen below)
+jst call me erza, slingshot or rocket | any pronouns including neos idm
 
 <img width="35" height="24" alt="21961dc9" src="https://github.com/user-attachments/assets/a0ca6751-ddc7-4a33-966a-1071ccb3f07a" />  --  im a young artist/animator • i like video games, astronomy, botany + [otha stuf](https://github.com/machine-detonation/EDD3A0)
 
