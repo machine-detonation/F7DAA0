@@ -12,4 +12,4 @@
 
 ˢʷᵒᶜᵏᵉᵗ ⁽ˢʷᵒʳᵈ ˣ ʳᵒᶜᵏᵉᵗ⁾ ˢʰⁱᵖᵖᵉʳˢ ˡⁱᵐⁱᵗ ⁱⁿᵗᵉʳᵃᶜᵗⁱᵒⁿ, ⁱᶠ ʸᵒᵘ ⁱⁿᵗᵉʳᵃᶜᵗ ᵃᵗ ᵃˡˡ. ᵗʰⁱˢ ⁱˢ ᶠᵒʳ ᵗʰᵉ ᵇᵉᵗᵗᵉʳ ᵒᶠ ᵇᵒᵗʰ ᵒᶠ ᵘˢ.
 
-[ˢᶜʳᵃᵗᶜʰ](https://scratch.mit.edu/users/redzzartz/) . [ⁱᵇⁱˢᵖᵃⁱⁿᵗ ˣ](https://ibispaint.com/artist4/2057983945473611/?type=illust&sort=new) . [ʳᵒᵇˡᵒˣ](https://www.roblox.com/users/5368384233/profile) . [strawpage](https://machinedetonation.straw.page)
+[ˢᶜʳᵃᵗᶜʰ](https://scratch.mit.edu/users/redzzartz/) . [ⁱᵇⁱˢᵖᵃⁱⁿᵗ ˣ](https://ibispaint.com/artist4/2057983945473611/?type=illust&sort=new) . [ʳᵒᵇˡᵒˣ](https://www.roblox.com/users/5368384233/profile) . [ˢᵗʳᵃʷ.ᵖᵃᵍᵉ](https://machinedetonation.straw.page)
