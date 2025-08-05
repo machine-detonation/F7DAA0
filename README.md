@@ -12,4 +12,6 @@
 
 ⁱᶠ ᴵ ʰᵃᵛᵉ ` ⋆ :: ` ⁱⁿ ᵐʸ ⁿᵃᵐᵉ ⁱᵗ ᵐᵉᵃⁿˢ ᴵ'ᵐ ᵘᵖˢᵉᵗ
 
+ᴵ ᵍᵉᵗ ⁿᵉʳᵛᵒᵘˢ ˢᵒᵐᵉᵗⁱᵐᵉˢ ˢᵒ ˡⁱᵏᵉ ᴵ ᵐⁱᵍʰᵗ ᵇᵉ ᵃ ˡⁱᵗᵗˡᵉ qᵘⁱᵉᵗ ᵃᵗ ᵗⁱᵐᵉˢ
+
 [ˢᶜʳᵃᵗᶜʰ](https://scratch.mit.edu/users/redzzartz/) . [ⁱᵇⁱˢᵖᵃⁱⁿᵗ ˣ](https://ibispaint.com/artist4/2057983945473611/?type=illust&sort=new) . [ʳᵒᵇˡᵒˣ](https://www.roblox.com/users/5368384233/profile) . [ˢᵗʳᵃʷᵖᵃᵍᵉ](https://machinedetonation.straw.page)
