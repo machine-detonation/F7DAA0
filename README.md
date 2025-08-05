@@ -10,4 +10,6 @@
 
 ˢʷᵒᶜᵏᵉᵗ ⁽ˢʷᵒʳᵈ ˣ ʳᵒᶜᵏᵉᵗ⁾ ˢʰⁱᵖᵖᵉʳˢ ˡⁱᵐⁱᵗ ⁱⁿᵗᵉʳᵃᶜᵗⁱᵒⁿ, ⁱᶠ ʸᵒᵘ ᵉᵛᵉⁿ ⁱⁿᵗᵉʳᵃᶜᵗ ᵃᵗ ᵃˡˡ. ᵗʰⁱˢ ⁱˢ ᶠᵒʳ ᵗʰᵉ ᵇᵉᵗᵗᵉʳ ᵒᶠ ᵇᵒᵗʰ ᵒᶠ ᵘˢ.
 
+ⁱᶠ ᴵ ʰᵃᵛᵉ ` ⋆ :: ` ⁱⁿ ᵐʸ ⁿᵃᵐᵉ ⁱᵗ ᵐᵉᵃⁿˢ ᴵ'ᵐ ᵘᵖˢᵉᵗ
+
 [ˢᶜʳᵃᵗᶜʰ](https://scratch.mit.edu/users/redzzartz/) . [ⁱᵇⁱˢᵖᵃⁱⁿᵗ ˣ](https://ibispaint.com/artist4/2057983945473611/?type=illust&sort=new) . [ʳᵒᵇˡᵒˣ](https://www.roblox.com/users/5368384233/profile) . [ˢᵗʳᵃʷᵖᵃᵍᵉ](https://machinedetonation.straw.page)
