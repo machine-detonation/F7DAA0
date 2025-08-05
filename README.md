@@ -6,4 +6,8 @@
 
 ᶜᵃˡˡ ᵐᵉ ᵉʳᶻᵃ ᵒʳ ˢˡⁱⁿᵍˢʰᵒᵗ - ᵃⁿʸ ᵖʳᵒⁿᵒᵘⁿˢ ⁱⁿᶜˡᵘᵈⁱⁿᵍ ⁿᵉᵒˢ
 
+ᴵ ᵇˡᵒᶜᵏ/ʰⁱᵈᵉ ᶠʳᵉᵉˡʸ
+
+ᵇᵉ ᶜᵃᵘᵗⁱᵒᵘˢ ʷʰᵉⁿ ᵗᵃˡᵏⁱⁿᵍ ᵗᵒ ᵐᵉ, ᴵ ᵍᵉᵗ ᵘᵖˢᵉᵗ/ᵃⁿⁿᵒʸᵉᵈ ᵉᵃˢⁱˡʸ
+
 [ˢᶜʳᵃᵗᶜʰ](scratch.mit.edu/users/redzzartz/) . [ⁱᵇⁱˢᵖᵃⁱⁿᵗ ˣ](https://ibispaint.com/artist4/2057983945473611/?type=illust&sort=new) . [ʳᵒᵇˡᵒˣ](https://www.roblox.com/users/5368384233/profile)
