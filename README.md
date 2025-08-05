@@ -3,3 +3,7 @@
 <img width="240" height="240" alt="Render_Slingshot_Old_1" src="https://github.com/user-attachments/assets/f3632201-ca12-4a0a-a873-df228fcf4cec" /> ʰⁱ ᵍⁿᵍ
 
 ᵖʰⁱᵍʰᵗⁱⁿᵍ ᵉⁿᵗʰᵘˢⁱᵃˢᵗ, ᴵ ᵃˡˢᵒ ᵈʳᵃʷ
+
+ᶜᵃˡˡ ᵐᵉ ᵉʳᶻᵃ ᵒʳ ˢˡⁱⁿᵍˢʰᵒᵗ
+
+[ˢᶜʳᵃᵗᶜʰ](scratch.mit.edu/users/redzzartz/) . [ⁱᵇⁱˢᵖᵃⁱⁿᵗ ˣ](https://ibispaint.com/artist4/2057983945473611/?type=illust&sort=new) . [ʳᵒᵇˡᵒˣ](https://www.roblox.com/users/5368384233/profile)
