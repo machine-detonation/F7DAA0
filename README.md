@@ -16,6 +16,8 @@
 
 ᴵ ˡᵒᵛᵉ ˡᵒᵛᵉ ˡᴼⱽᴱ ᶜʳᵒʷⁿⁱⁿᵍ ᵖᵉᵒᵖˡᵉ ⁻ ᵘ ᵍᵘʸˢ' ᵖᵒⁿⁱᵉˢ ᵃʳᵉ ˢᵒ ᵖᴿᴱᵀᵀʸ ᵒʰ ᵐʸ ˢᶠᵒᵗʰ
 
+ᴵ ᶻᴼᴺᴱ ᴼᵁᵀ ᴬ ᴸᴼᵀ!!!!!
+
 [ˢᶜʳᵃᵗᶜʰ](https://scratch.mit.edu/users/redzzartz/) . [ⁱᵇⁱˢᵖᵃⁱⁿᵗ ˣ](https://ibispaint.com/artist4/2057983945473611/?type=illust&sort=new) . [ʳᵒᵇˡᵒˣ](https://www.roblox.com/users/5368384233/profile) . [ˢᵗʳᵃʷᵖᵃᵍᵉ](https://machinedetonation.straw.page)
 
 ✦ :: ᴺᴼᵀᴱˢ
