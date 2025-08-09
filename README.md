@@ -2,7 +2,8 @@
 <img width="806" height="74" alt="uqt6sk" src="https://github.com/user-attachments/assets/6cf0724e-859b-40ca-8907-bd8d23153645" />
 
 <p align="center">
-<img width="240" height="240" alt="Render_Slingshot_Old_1" src="https://github.com/user-attachments/assets/f3632201-ca12-4a0a-a873-df228fcf4cec" /> ʰⁱ ᵍⁿᵍ
+<img width="240" height="240" alt="Render_Rocket_Old_1" src="https://github.com/user-attachments/assets/5242c2e6-d0bc-4627-b943-400268c509ee" />
+
 
 <p align="center">
 ᵖʰⁱᵍʰᵗⁱⁿᵍ ᵉⁿᵗʰᵘˢⁱᵃˢᵗ, ᴵ ᵃˡˢᵒ ᵈʳᵃʷ ⁿ ˢᵗᵘᶠᶠ ˡⁱᵏᵉ ᵗʰᵃᵗ
