@@ -6,7 +6,7 @@
 
 
 <p align="center">
-ᵖʰⁱᵍʰᵗⁱⁿᵍ ᵉⁿᵗʰᵘˢⁱᵃˢᵗ, ᴵ ᵃˡˢᵒ ᵈʳᵃʷ ⁿ ˢᵗᵘᶠᶠ ˡⁱᵏᵉ ᵗʰᵃᵗ
+ᵖʰⁱᵍʰᵗⁱⁿᵍ ⁺ ᶜʳᵉᵃᵗᵘʳᵉˢ ᵒᶠ ˢᵒⁿᵃʳⁱᵃ ᵉⁿᵗʰᵘˢⁱᵃˢᵗ, ᴵ ᵃˡˢᵒ ᵈʳᵃʷ ⁿ ˢᵗᵘᶠᶠ ˡⁱᵏᵉ ᵗʰᵃᵗ
 <p align="center">
 ᶜᵃˡˡ ᵐᵉ ᵉʳᶻᵃ, ˢˡⁱⁿᵍˢʰᵒᵗ ᵒʳ ʳᵒᶜᵏᵉᵗ ⁽ᵒʳ ᵍⁱᵛᵉ ᵐᵉ ᵃ ⁿⁱᶜᵏⁿᵃᵐᵉ ⁱᵈᶜ⁾ + ᵃⁿʸ ᵖʳᵒⁿᵒᵘⁿˢ ⁱⁿᶜˡᵘᵈⁱⁿᵍ ⁿᵉᵒˢ
 <p align="center">
@@ -22,7 +22,7 @@
 <p align="center">
 ᴵ ᶻᴼᴺᴱ ᴼᵁᵀ ᴬ ᴸᴼᵀ!!!!!
 <p align="center">
-ⁱᶠ ⁱᵗ ᵐᵉᵃⁿˢ ᵃⁿʸᵗʰⁱⁿᵍ ᵗᵒ ʸᵒᵘ ᵐʸ ᶠᵃᵛᵒʳⁱᵗᵉ ⁿᵘᵐᵇᵉʳ ⁱˢ ⁴⁸⁹
+ᴵ ᵈᵒⁿ'ᵗ ᶠʷ ˢʷᵒᶜᵏᵉᵗ ᵒʳ ʳᵒᶜᵏᵉᵗᵇᵒᵃʳᵈ ˢʳʳʸ ᵍⁿᵍ
   
 [ˢᶜʳᵃᵗᶜʰ](https://scratch.mit.edu/users/redzzartz/) . [ⁱᵇⁱˢᵖᵃⁱⁿᵗ ˣ](https://ibispaint.com/artist4/2057983945473611/?type=illust&sort=new) . [ʳᵒᵇˡᵒˣ](https://www.roblox.com/users/5368384233/profile) . [ˢᵗʳᵃʷᵖᵃᵍᵉ](https://machinedetonation.straw.page)
 
