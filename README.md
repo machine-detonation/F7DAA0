@@ -8,7 +8,10 @@
 
 
 <p align="center">
-<img width="280" height="280" alt="Clover_cookie_alternate" src="https://github.com/user-attachments/assets/395ffe3a-a189-4c6e-b993-ac55f2c0edf0" />
+<img width="280" height="280" alt="Clover_cookie_alternate" src="https://github.com/user-attachments/assets/395ffe3a-a189-4c6e-b993-ac55f2c0edf0" /> ⁻⁻ " ᴹᵃʸ ˡᵘᶜᵏ ᶠᵒˡˡᵒʷ ʸᵒᵘ ⁱⁿ ʸᵒᵘʳ ᵃᵈᵛᵉⁿᵗᵘʳᵉˢ... "
+
+<p align="center">
+------------------------------------
 
 <p align="center">
 ᴵ ᵍᵒ ᵇʸ ᴱʳᶻᵃ ᵒʳ ᴿᵉᵈᶻᶻ ᵒⁿˡⁱⁿᵉ ᵇᵘᵗ ʸᵒᵘ ᶜᵃⁿ ᶜᵃˡˡ ᵐᵉ ᵃⁿʸᵗʰⁱⁿᵍ ʸᵒᵘ ʷᵃⁿᵗ ⁱᵈᵐ! 
@@ -30,3 +33,6 @@
 
 <p align="center">
 ⁱⁿᵗᵉʳᵉˢᵗˢ / ᶠᵃⁿᵈᵒᵐˢ
+
+<p align="center">
+[ wip, come back later ]
