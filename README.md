@@ -33,7 +33,7 @@
 ᴵ ᵇˡᵒᶜᵏ ᶠʳᵉᵉˡʸ ˢᵒ ᴵ ᵗᵉᶜʰⁿⁱᶜᵃˡˡʸ ᵈᵒⁿ'ᵗ ʰᵃᵛᵉ ᵃ ᵈⁿⁱ ˡⁱˢᵗ ᵇᵘᵗ ᴵ ᵈⁱᵈ ʰᵃᵛᵉ ᵒⁿᵉ ⁱᵗ'ᵈ ᵇᵉ ᵗʰᵉ ᵍᵉⁿᵉʳᵃˡ ᶜʳⁱᵗᵉʳⁱᵃ ⁺ ᵃⁱ ᵃʳᵗⁱˢᵗˢ ⁿ' ᵏⁱⁿᵈᵃ ʲᵘˢᵗ ʷᵉⁱʳᵈᵒˢ
 
 <p align="center">
-⋆ ⁻ ᴾᵒᵐᵒᵍᵉⁿᵈᵉʳ ᴼᵐⁿⁱˢᵉˣᵘᵃˡ • ᵀʰᵉˢᵉ ᵃʳᵉ ᵉˣᵖˡᵃⁱⁿᵉᵈ ᵃᵗ ᵗʰᵉ ᵇᵒᵗᵗᵒᵐ ᵒᶠ ᵗʰᵉ ʳᵉᵖᵒˢⁱᵗᵒʳʸ ᵃˡᵒⁿᵍ ʷⁱᵗʰ ʳᵉˢᵒᵘʳᶜᵉˢ!
+⋆ ⁻ ᴾᵒᵐᵒᵍᵉⁿᵈᵉʳ ᴼᵐⁿⁱˢᵉˣᵘᵃˡ
 
 <p align="center">
 " ᴴᵃ ʰᵃ, ᵐʸ ˢᵗᵒʳʸ ⁱˢ ᵇᵘᵗ ᵒⁿᵉ ᵒᶠ ᵐᵃⁿʸ! " ⁻⁻ <img width="240" height="240" alt="Cookie0512_emotion_happy" src="https://github.com/user-attachments/assets/7e2ff0d2-db20-4280-9552-e968ed191663" />
@@ -84,4 +84,6 @@
 ------------------------------------
 
 <p align="center">
-[ work in progress, come back later! ]
+<img width="99" height="56" alt="454491823-4a2409b4-5634-42be-8f0c-26632e57f0a2" src="https://github.com/user-attachments/assets/e58ed8d4-c49b-42af-9e65-9d8c8c571405" /> <img width="88" height="31" alt="454495972-adba1871-18e4-41fb-abc2-f7b914519f1e" src="https://github.com/user-attachments/assets/cc6bff9a-e928-4f2d-8af2-c60c92bc6840" />
+
+
