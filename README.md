@@ -105,4 +105,9 @@
 • omnisexual definition - "...the sexual attraction to people of all sexes and gender identities, wherein gender plays a role in one's attraction. This could be a preference or a recognition, and the attraction may feel different depending on the gender or sex." [2](https://lgbtqia.fandom.com/wiki/Omnisexual)
 
 <p align="center">
+------------------------------------
+<p align="center">
+ᴳⁱᵗᴴᵘᵇ ᶜᵒᵈⁱⁿᵍ ⁱˢ ˢᵒ ʰᵃʳᵈ ᵇʳᵘʰ ᴵ ˢᵖᵉⁿᵗ ᵃᶜᵗᵘᵃˡ ᴴᴼᵁᴿˢ ᵗʳʸⁱⁿᵍ ᵗᵒ ᵈᵒ ᵗˢ
+
+<p align="center">
 <img width="1280" height="102" alt="5c2ew6" src="https://github.com/user-attachments/assets/cb7f8ecc-45c4-4c33-b984-b53e5af00b70" />
