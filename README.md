@@ -104,4 +104,10 @@
 [pixelprism](https://rentry.co/pixelprism) - anti-ai stamp and buttons || [clover cookie's gallery](https://cookierunkingdom.fandom.com/wiki/Clover_Cookie/Gallery) and [quotes](https://cookierunkingdom.fandom.com/wiki/Clover_Cookie/Quotes) - images and quotes || [ulzzang](https://rentry.co/ulzzang) - dividers
 
 <p align="center">
+pomogender definition - "A gender where one denies or does not fit any labels for any particular gender. For example, someone who knows they're not cis, but is not interested, or can't specify what their gender(s) are."
+
+<p align="center">
+omnisexual definition - "...the sexual attraction to people of all sexes and gender identities, wherein gender plays a role in one's attraction. This could be a preference or a recognition, and the attraction may feel different depending on the gender or sex."
+
+<p align="center">
 <img width="1280" height="102" alt="5c2ew6" src="https://github.com/user-attachments/assets/cb7f8ecc-45c4-4c33-b984-b53e5af00b70" />
