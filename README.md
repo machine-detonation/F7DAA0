@@ -100,9 +100,13 @@
 
 [pixelprism](https://rentry.co/pixelprism) - anti-ai stamp + buttons || [clover cookie's gallery](https://cookierunkingdom.fandom.com/wiki/Clover_Cookie/Gallery) and [quotes](https://cookierunkingdom.fandom.com/wiki/Clover_Cookie/Quotes) - images + quotes || [ulzzang](https://rentry.co/ulzzang) - dividers
 
-• pomogender definition - "A gender where one denies or does not fit any labels for any particular gender. For example, someone who knows they're not cis, but is not interested, or can't specify what their gender(s) are." [1](https://gender.fandom.com/wiki/Pomogender)
+• pomogender definition - "A gender where one denies or does not fit any labels for any particular gender. For example, someone who knows they're not cis, but is not interested, or can't specify what their gender(s) are."
 
-• omnisexual definition - "...the sexual attraction to people of all sexes and gender identities, wherein gender plays a role in one's attraction. This could be a preference or a recognition, and the attraction may feel different depending on the gender or sex." [2](https://lgbtqia.fandom.com/wiki/Omnisexual)
+[.1](https://gender.fandom.com/wiki/Pomogender)
+
+• omnisexual definition - "...the sexual attraction to people of all sexes and gender identities, wherein gender plays a role in one's attraction. This could be a preference or a recognition, and the attraction may feel different depending on the gender or sex."
+
+[.2](https://lgbtqia.fandom.com/wiki/Omnisexual)
 
 <p align="center">
 ------------------------------------
