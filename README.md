@@ -33,13 +33,16 @@
 ᴵ ᵇˡᵒᶜᵏ ᶠʳᵉᵉˡʸ ˢᵒ ᴵ ᵗᵉᶜʰⁿⁱᶜᵃˡˡʸ ᵈᵒⁿ'ᵗ ʰᵃᵛᵉ ᵃ ᵈⁿⁱ ˡⁱˢᵗ ᵇᵘᵗ ᴵ ᵈⁱᵈ ʰᵃᵛᵉ ᵒⁿᵉ ⁱᵗ'ᵈ ᵇᵉ ᵗʰᵉ ᵍᵉⁿᵉʳᵃˡ ᶜʳⁱᵗᵉʳⁱᵃ ⁺ ᵃⁱ ᵃʳᵗⁱˢᵗˢ ⁿ' ᵏⁱⁿᵈᵃ ʲᵘˢᵗ ʷᵉⁱʳᵈᵒˢ
 
 <p align="center">
-<img width="240" height="240" alt="Cookie0512_emotion_happy" src="https://github.com/user-attachments/assets/7e2ff0d2-db20-4280-9552-e968ed191663" />
+" ᴴᵃ ʰᵃ, ᵐʸ ˢᵗᵒʳʸ ⁱˢ ᵇᵘᵗ ᵒⁿᵉ ᵒᶠ ᵐᵃⁿʸ! " ⁻⁻ <img width="240" height="240" alt="Cookie0512_emotion_happy" src="https://github.com/user-attachments/assets/7e2ff0d2-db20-4280-9552-e968ed191663" />
 
 <p align="center">
 ------------------------------------
 
 <p align="center">
 ⁱⁿᵗᵉʳᵉˢᵗˢ / ᶠᵃⁿᵈᵒᵐˢ
+
+<p align="center">
+------------------------------------
 
 <p align="center">
 ¹. ᴿᵒᵇˡᵒˣ • ᴾᴴᴵᴳᴴᵀᴵᴺᴳ!, ᶜʳᵉᵃᵗᵘʳᵉˢ ᵒᶠ ˢᵒⁿᵃʳⁱᵃ, ᵘⁿᵗⁱᵗˡᵉᵈ ᵗᵃᵍ ᵍᵃᵐᵉ, ˢᵗᵃʳˢ ᴬˡⁱᵍⁿ
