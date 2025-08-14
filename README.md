@@ -27,3 +27,6 @@
 
 <p align="center">
 <img width="240" height="240" alt="Cookie0512_emotion_happy" src="https://github.com/user-attachments/assets/7e2ff0d2-db20-4280-9552-e968ed191663" />
+
+<p align="center">
+ⁱⁿᵗᵉʳᵉˢᵗˢ / ᶠᵃⁿᵈᵒᵐˢ
