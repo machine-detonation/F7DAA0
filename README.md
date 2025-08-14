@@ -93,4 +93,15 @@
 <img width="95" height="85" alt="7khp14" src="https://github.com/user-attachments/assets/100dd9cd-104f-4d49-ae0d-330bbc170d3f" /> <img width="55" height="45" alt="oh85ey" src="https://github.com/user-attachments/assets/88cc818f-0488-438b-a24e-4fec9ad65855" /> <img width="45" height="35" alt="geek" src="https://github.com/user-attachments/assets/32c3240f-7ed6-424e-ae4a-65a0cd342f30" />
 
 <p align="center">
-buttons are from rentry.co/pixelprism !
+------------------------------------
+
+<p align="center">
+⁻ ʳᵉˢᵒᵘʳᶜᵉˢ / ᵒᵗʰᵉʳ ⁱⁿᶠᵒʳᵐᵃᵗⁱᵒⁿ ⁻
+
+<p align="center">
+------------------------------------
+
+[pixelprism](rentry.co/pixelprism) - where I got the anti-ai stamp and the buttons || [clover cookie's gallery](https://cookierunkingdom.fandom.com/wiki/Clover_Cookie/Gallery) and [quotes](https://cookierunkingdom.fandom.com/wiki/Clover_Cookie/Quotes) - images and quotes || [ulzzang](rentry.co/ulzzang) - borders
+
+<p align="center">
+<img width="1280" height="102" alt="5c2ew6" src="https://github.com/user-attachments/assets/cb7f8ecc-45c4-4c33-b984-b53e5af00b70" />
