@@ -101,7 +101,7 @@
 <p align="center">
 ------------------------------------
 
-[pixelprism](https://rentry.co/pixelprism) - where I got the anti-ai stamp and the buttons || [clover cookie's gallery](https://cookierunkingdom.fandom.com/wiki/Clover_Cookie/Gallery) and [quotes](https://cookierunkingdom.fandom.com/wiki/Clover_Cookie/Quotes) - images and quotes || [ulzzang](https://rentry.co/ulzzang) - borders
+[pixelprism](https://rentry.co/pixelprism) - anti-ai stamp and buttons || [clover cookie's gallery](https://cookierunkingdom.fandom.com/wiki/Clover_Cookie/Gallery) and [quotes](https://cookierunkingdom.fandom.com/wiki/Clover_Cookie/Quotes) - images and quotes || [ulzzang](https://rentry.co/ulzzang) - dividers
 
 <p align="center">
 <img width="1280" height="102" alt="5c2ew6" src="https://github.com/user-attachments/assets/cb7f8ecc-45c4-4c33-b984-b53e5af00b70" />
